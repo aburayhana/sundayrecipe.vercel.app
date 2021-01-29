@@ -1,0 +1,87 @@
+---
+description: "Steps to Make Favorite Gnocchi Zucchine e Salmone"
+title: "Steps to Make Favorite Gnocchi Zucchine e Salmone"
+slug: 1374-steps-to-make-favorite-gnocchi-zucchine-e-salmone
+date: 2020-08-21T00:06:17.049Z
+image: https://img-global.cpcdn.com/recipes/3b2696005d11716a/751x532cq70/gnocchi-zucchine-e-salmone-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/3b2696005d11716a/751x532cq70/gnocchi-zucchine-e-salmone-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/3b2696005d11716a/751x532cq70/gnocchi-zucchine-e-salmone-recipe-main-photo.jpg
+author: Robert Underwood
+ratingvalue: 4.1
+reviewcount: 28760
+recipeingredient:
+- "500 g gnocchi"
+- "2 zucchine"
+- "1 cipolla"
+- "350 g salmone affumicato"
+- " Olio doliva"
+- " Sale e Pepe"
+- "200 ml panna al salmone"
+recipeinstructions:
+- "Rosolare con un filo d&#39;olio la cipolla e poi aggiungere le zucchine tagliate a cubetti, 2 bicchieri di acqua, sale e pepe e fare cucinare a fuoco lento per 10 minuti"
+- "Aggiungere il salmone a pezzetti"
+- "Fare cucinare per 5 minuti amalgamando il tutto e poi aggiungete la panna"
+- "Preparate gli gnocchi"
+- "Appena cotti scolateli e condite"
+- "Amalgate e servite"
+- "Buon Appetito!"
+categories:
+- Recipe
+tags:
+- gnocchi
+- zucchine
+- e
+
+katakunci: gnocchi zucchine e 
+nutrition: 248 calories
+recipecuisine: American
+preptime: "PT39M"
+cooktime: "PT51M"
+recipeyield: "4"
+recipecategory: Dessert
+
+---
+
+
+![Gnocchi Zucchine e Salmone](https://img-global.cpcdn.com/recipes/3b2696005d11716a/751x532cq70/gnocchi-zucchine-e-salmone-recipe-main-photo.jpg)
+
+Hello everybody, it's Drew, welcome to our recipe page. Today, I will show you a way to make a distinctive dish, gnocchi zucchine e salmone. It is one of my favorites. For mine, I am going to make it a little bit tasty. This is gonna smell and look delicious.
+
+Gnocchi Zucchine e Salmone is one of the most popular of current trending meals on earth. It is easy, it is quick, it tastes delicious. It is enjoyed by millions daily. They are fine and they look wonderful. Gnocchi Zucchine e Salmone is something that I have loved my whole life.
+
+
+
+
+To get started with this particular recipe, we must prepare a few ingredients. You can cook gnocchi zucchine e salmone using 7 ingredients and 7 steps. Here is how you cook it.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Gnocchi Zucchine e Salmone:
+
+1. Prepare 500 g gnocchi
+1. Get 2 zucchine
+1. Get 1 cipolla
+1. Prepare 350 g salmone affumicato
+1. Prepare  Olio d&#39;oliva
+1. Make ready  Sale e Pepe
+1. Take 200 ml panna al salmone
+
+
+
+
+<!--inarticleads2-->
+
+##### Instructions to make Gnocchi Zucchine e Salmone:
+
+1. Rosolare con un filo d&#39;olio la cipolla e poi aggiungere le zucchine tagliate a cubetti, 2 bicchieri di acqua, sale e pepe e fare cucinare a fuoco lento per 10 minuti
+1. Aggiungere il salmone a pezzetti
+1. Fare cucinare per 5 minuti amalgamando il tutto e poi aggiungete la panna
+1. Preparate gli gnocchi
+1. Appena cotti scolateli e condite
+1. Amalgate e servite
+1. Buon Appetito!
+
+
+
+
+So that is going to wrap this up for this exceptional food gnocchi zucchine e salmone recipe. Thanks so much for your time. I am sure you will make this at home. There's gonna be more interesting food in home recipes coming up. Don't forget to bookmark this page in your browser, and share it to your loved ones, colleague and friends. Thank you for reading. Go on get cooking!

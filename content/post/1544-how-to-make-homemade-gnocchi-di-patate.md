@@ -1,0 +1,79 @@
+---
+description: "How to Make Homemade Gnocchi di Patate"
+title: "How to Make Homemade Gnocchi di Patate"
+slug: 1544-how-to-make-homemade-gnocchi-di-patate
+date: 2020-11-05T06:04:00.474Z
+image: https://img-global.cpcdn.com/recipes/6e0fd9fb99b54734/751x532cq70/gnocchi-di-patate-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/6e0fd9fb99b54734/751x532cq70/gnocchi-di-patate-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/6e0fd9fb99b54734/751x532cq70/gnocchi-di-patate-recipe-main-photo.jpg
+author: Travis Boone
+ratingvalue: 4.6
+reviewcount: 49880
+recipeingredient:
+- "6 patate di media grandezza a pasta gialla"
+- "q.b. farina"
+- "1 uovo"
+- "1 pizzico sale"
+recipeinstructions:
+- "Lavare bene le patate con la buccia e asciugarle. Tagliare un pezzo di carta da forno,sistemare le patate senza sovrapporle e chiudere bene a cartoccio. Cuocere in forno già caldo a 160⁰ starico per circa un&#39;ora e mezza. Ogni tanto controllare la cottura."
+- "Una volta cotte si dividono a metà e,ancora calde e con la buccia,si passano nello schiacciapatate mettendo la parte tagliata all&#39;ingiù. In questo modo rimarrà solo la buccia da togliere nello schiacciapatate."
+- "Quando saranno raffreddate le patate si aggiunge l&#39;uovo,il sale e la farina. Con una forchetta si mescola tutto e si forma una palla aiutandosi con la punta delle dita."
+- "Con l&#39;aiuto di un coltello e della farina si taglia a fette l&#39;impasto poi, queste,si suddividono in strisce."
+- "Ogni striscia si arrotola formando un cilindro e sempre con il coltello si tagliano a pezzetti. Io li ho lasciati di questa forma per praticità."
+- "Il mio consiglio...l&#39;impasto non va lavorato troppo,deve risultare morbido e la farina va aggiunta a piccole dosi in base alla necessità. Io ho considerato 2 patate a persona ma se fate piatto unico è meglio aumentare la quantità."
+categories:
+- Recipe
+tags:
+- gnocchi
+- di
+- patate
+
+katakunci: gnocchi di patate 
+nutrition: 233 calories
+recipecuisine: American
+preptime: "PT34M"
+cooktime: "PT37M"
+recipeyield: "3"
+recipecategory: Dessert
+
+---
+
+
+![Gnocchi di Patate](https://img-global.cpcdn.com/recipes/6e0fd9fb99b54734/751x532cq70/gnocchi-di-patate-recipe-main-photo.jpg)
+
+Hello everybody, hope you are having an incredible day today. Today, we're going to prepare a special dish, gnocchi di patate. One of my favorites. For mine, I will make it a bit unique. This is gonna smell and look delicious.
+
+Gnocchi di Patate is one of the most popular of recent trending foods on earth. It's enjoyed by millions every day. It's simple, it's quick, it tastes yummy. They're nice and they look wonderful. Gnocchi di Patate is something that I have loved my whole life.
+
+
+
+
+To get started with this particular recipe, we have to first prepare a few components. You can cook gnocchi di patate using 4 ingredients and 6 steps. Here is how you cook that.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Gnocchi di Patate:
+
+1. Take 6 patate di media grandezza a pasta gialla
+1. Get q.b. farina
+1. Prepare 1 uovo
+1. Make ready 1 pizzico sale
+
+
+
+
+<!--inarticleads2-->
+
+##### Instructions to make Gnocchi di Patate:
+
+1. Lavare bene le patate con la buccia e asciugarle. Tagliare un pezzo di carta da forno,sistemare le patate senza sovrapporle e chiudere bene a cartoccio. Cuocere in forno già caldo a 160⁰ starico per circa un&#39;ora e mezza. Ogni tanto controllare la cottura.
+1. Una volta cotte si dividono a metà e,ancora calde e con la buccia,si passano nello schiacciapatate mettendo la parte tagliata all&#39;ingiù. In questo modo rimarrà solo la buccia da togliere nello schiacciapatate.
+1. Quando saranno raffreddate le patate si aggiunge l&#39;uovo,il sale e la farina. Con una forchetta si mescola tutto e si forma una palla aiutandosi con la punta delle dita.
+1. Con l&#39;aiuto di un coltello e della farina si taglia a fette l&#39;impasto poi, queste,si suddividono in strisce.
+1. Ogni striscia si arrotola formando un cilindro e sempre con il coltello si tagliano a pezzetti. Io li ho lasciati di questa forma per praticità.
+1. Il mio consiglio...l&#39;impasto non va lavorato troppo,deve risultare morbido e la farina va aggiunta a piccole dosi in base alla necessità. Io ho considerato 2 patate a persona ma se fate piatto unico è meglio aumentare la quantità.
+
+
+
+
+So that is going to wrap this up with this special food gnocchi di patate recipe. Thank you very much for reading. I am sure that you can make this at home. There's gonna be more interesting food at home recipes coming up. Don't forget to save this page in your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!

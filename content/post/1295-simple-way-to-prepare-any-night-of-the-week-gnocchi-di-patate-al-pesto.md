@@ -1,0 +1,97 @@
+---
+description: "Simple Way to Prepare Any-night-of-the-week Gnocchi di patate al pesto"
+title: "Simple Way to Prepare Any-night-of-the-week Gnocchi di patate al pesto"
+slug: 1295-simple-way-to-prepare-any-night-of-the-week-gnocchi-di-patate-al-pesto
+date: 2021-01-06T04:46:32.049Z
+image: https://img-global.cpcdn.com/recipes/3ef08a85f7d21f0c/751x532cq70/gnocchi-di-patate-al-pesto-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/3ef08a85f7d21f0c/751x532cq70/gnocchi-di-patate-al-pesto-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/3ef08a85f7d21f0c/751x532cq70/gnocchi-di-patate-al-pesto-recipe-main-photo.jpg
+author: Chase Huff
+ratingvalue: 4.9
+reviewcount: 48192
+recipeingredient:
+- " Per gji gnocchi"
+- "1 kg. patate"
+- "250 gr. farina 0"
+- "50 gr. semola rimacinata"
+- " Sale q b"
+- " Per il Pesto"
+- "50 gr. basilico"
+- "35 gr. parmigiano reggiano"
+- "15 gr. pecorino"
+- "20 gr. pinoli"
+- "2 spicchi daglio"
+- "q.b Olio evo"
+recipeinstructions:
+- "Preparare il pesto frullano tutti gli ingredienti assieme e tenerlo da parte."
+- "Lessare le patate. Scolarle e schiacciarle con lo schiacciapatate. Lasciarle intiepidire e mescolare con la farina. (la quantità di farina dipende dalle patate a volte ne serve di più).aggiungere il sale."
+- "Impastare velocemente e formare una palla."
+- "Senza premere troppo e aiutandosi con la farina formare dei cordoncini non troppo sottili."
+- "Tagliare dei pezzettini di 1 o 2 cm. di lunghezza.dipende se piacciono più grandi o piccoli. (sempre aiutandosi con la farina)"
+- "Volendo si possono far scivolare sui rebbi di una forchetta per formare le tipiche righe."
+- "Cuocere in abbondante acqua salata. Appena vengono a galla prenderli con una schiumarola o ramina (non usare lo scolapasta altrimenti diventano una pappa) metterli in una zuppiera e condirli con il pesto."
+categories:
+- Recipe
+tags:
+- gnocchi
+- di
+- patate
+
+katakunci: gnocchi di patate 
+nutrition: 293 calories
+recipecuisine: American
+preptime: "PT15M"
+cooktime: "PT40M"
+recipeyield: "2"
+recipecategory: Dinner
+
+---
+
+
+![Gnocchi di patate al pesto](https://img-global.cpcdn.com/recipes/3ef08a85f7d21f0c/751x532cq70/gnocchi-di-patate-al-pesto-recipe-main-photo.jpg)
+
+Hey everyone, I hope you are having an incredible day today. Today, we're going to make a special dish, gnocchi di patate al pesto. It is one of my favorites food recipes. For mine, I'm gonna make it a little bit tasty. This will be really delicious.
+
+
+
+Gnocchi di patate al pesto is one of the most well liked of current trending foods in the world. It's easy, it is quick, it tastes delicious. It's enjoyed by millions every day. Gnocchi di patate al pesto is something that I've loved my entire life. They're nice and they look fantastic.
+
+
+To get started with this particular recipe, we must prepare a few components. You can have gnocchi di patate al pesto using 12 ingredients and 7 steps. Here is how you cook it.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Gnocchi di patate al pesto:
+
+1. Take  Per gji gnocchi:
+1. Make ready 1 kg. patate
+1. Get 250 gr. farina 0
+1. Get 50 gr. semola rimacinata
+1. Take  Sale q. b
+1. Take  Per il Pesto:
+1. Prepare 50 gr. basilico
+1. Take 35 gr. parmigiano reggiano
+1. Make ready 15 gr. pecorino
+1. Take 20 gr. pinoli
+1. Prepare 2 spicchi d&#39;aglio
+1. Prepare q.b Olio evo
+
+
+
+
+<!--inarticleads2-->
+
+##### Steps to make Gnocchi di patate al pesto:
+
+1. Preparare il pesto frullano tutti gli ingredienti assieme e tenerlo da parte.
+1. Lessare le patate. Scolarle e schiacciarle con lo schiacciapatate. Lasciarle intiepidire e mescolare con la farina. (la quantità di farina dipende dalle patate a volte ne serve di più).aggiungere il sale.
+1. Impastare velocemente e formare una palla.
+1. Senza premere troppo e aiutandosi con la farina formare dei cordoncini non troppo sottili.
+1. Tagliare dei pezzettini di 1 o 2 cm. di lunghezza.dipende se piacciono più grandi o piccoli. (sempre aiutandosi con la farina)
+1. Volendo si possono far scivolare sui rebbi di una forchetta per formare le tipiche righe.
+1. Cuocere in abbondante acqua salata. Appena vengono a galla prenderli con una schiumarola o ramina (non usare lo scolapasta altrimenti diventano una pappa) metterli in una zuppiera e condirli con il pesto.
+
+
+
+
+So that's going to wrap it up with this special food gnocchi di patate al pesto recipe. Thank you very much for your time. I am confident you will make this at home. There's gonna be more interesting food in home recipes coming up. Remember to bookmark this page on your browser, and share it to your family, friends and colleague. Thanks again for reading. Go on get cooking!
